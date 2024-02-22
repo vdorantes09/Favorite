@@ -8,3 +8,5 @@ I almost always play video games 3x a week and has been one of my biggest hobbie
 3. I get good laughs with my buddies
 
 ## Paddle Boarding (summer)
+
+![Happy Dog](Luna Paddleboard.jpeg)
