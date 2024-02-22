@@ -1,4 +1,4 @@
-# Hobbies-
+# **Hobbies**
 My favorite activities
 
 ## Video Games
