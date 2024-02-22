@@ -10,4 +10,11 @@ I almost always play video games 3x a week and has been one of my biggest hobbie
 
 ## Paddle Boarding (summer)
 I always go camping during the summer, typically itll be my fiance, my two dogs, and I. We either go to Lake Chelan or Deception Pass. Luna (Golden) loves the water and Alani (Husky) **Absolutely Hates** the water, but when we camp we also go hiking. We like to go camping to areas with water because we always paddle board, its been a tradition for us since before we started dating in high school.
+
 ![Happy Dog](LunaPaddleboard.jpeg)
+
+### Why I enjoy paddle boarding:
+1. I have always enjoyed any activity in the water
+2. Its very relaxing, and half the time i sneak in a little nap \
+3. My golden loves it and there is nothing like watching your older dog run and jump around like a puppy
+
