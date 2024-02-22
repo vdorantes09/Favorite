@@ -20,7 +20,4 @@ I always go camping during the summer, typically it’ll be my fiancé, my two d
 1. I have always enjoyed any activity in the water
 2. Its very relaxing, and half the time I sneak in a little nap 
 3. My golden loves it and there is nothing like watching your older dog run and jump around like a puppy
-
 *Both dogs are mini sized*
-
-
