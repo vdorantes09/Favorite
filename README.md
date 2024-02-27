@@ -1,7 +1,7 @@
 # **Hobbies**
 My favorite activities
 
-## <align="center">Video Games
+## Video Games
 I almost always play video games 3x a week and has been one of my biggest hobbies for 15 years. I love to play multiplayer games and really, it’s to connect with friends. Games can range from FPS to MMOs, but surprisingly I don’t enjoy Single player games.
 ### Why i enjoy video games:
 1. Honestly the best way to connect with friends that have moved away from home
