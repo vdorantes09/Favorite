@@ -12,7 +12,7 @@ I almost always play video games 3x a week and has been one of my biggest hobbie
 *Disclaimer: claimed to be good with hardware not hiding cables*
 
 ## Paddle Boarding (summer)
-I always go camping during the summer, typically it’ll be my fiancé, my two dogs, and I. We either go to Lake Chelan or Deception Pass. Luna (Golden) loves the water and Alani (Husky) **Absolutely Hates** the water, but when we camp, we also go hiking. We like to go camping to areas with water because we always paddle board, it’s been a tradition for us since before we started dating in high school.
+We love summer camping trips with my fiancé, our two dogs, Luna (Golden) and Alani (Husky). Luna adores water, but Alani absolutely hates it. Our favorite spots are Lake Chelan or Deception Pass because we enjoy hiking and paddle boarding. Paddle boarding has been our tradition since high school, even before we started dating.
 
 ![Happy Dog](LunaPaddleboard.jpeg)
 
